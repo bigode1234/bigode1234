@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @bigode1234
+- 👀 I’m interested in soccer futebol
+- estudante ensino medio
+- experiencia como cuidador de deficientes/idosos
+- curso incompleto de xcel
+- cruso de teologia basica pela prime curso
+- sou cristao
+- tenho experiencia como auxiliar de eletricista
